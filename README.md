@@ -1,0 +1,5 @@
+- haihai im valk
+- im a big ol phighting fan and i loveee subkit
+- roblox dev :P
+- lookin 4 rblx myth nd phighting friends
+- disc is @drcornard if u wanna get in contact :3
