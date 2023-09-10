@@ -3,3 +3,5 @@
 - roblox dev :P
 - lookin 4 rblx myth nd phighting friends
 - disc is @drcornard if u wanna get in contact :3
+- ponytown rentry is https://rentry.org/bpdfairy-2 , main rentry is https://rentry.org/bpdfairy
+-  my rblx is medkits dog ^_^
