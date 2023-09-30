@@ -5,5 +5,5 @@
 - main hyperfix;; dialtown,, phighting,, pretty blood
 - roblox builder :P
 - disc is @nokia3410 and rblx is medkitsdog if u wanna get in contact :3
-- ponytown rentry is https://rentry.org/bpdfairy-2 , main rentry is https://rentry.org/bpdfairy
+- ponytown rentry is https://rentry.org/bdhound-2 , main rentry is https://rentry.org/bpdhound
    ![kangel cool](https://static.myfigurecollection.net/upload/pictures/2023/03/04/3490579.gif?width=190&height=190)
