@@ -4,6 +4,6 @@
 - bpdschizo and audhd (also osdd-1b)
 - main hyperfix;; dialtown,, ~~dsaf~~,, pretty blood
 - roblox builder :P
-- disc is @nokia3410 and rblx is exilehound if u wanna get in contact :3
+- disc is @bpdjack and rblx is exilehound if u wanna get in contact :3
 - ponytown rentry is https://rentry.org/bpdhound-2 , main rentry is https://rentry.org/bpdhound
    ![bust a nut](https://media.tenor.com/JyyMYp-1qwQAAAAd/dsaf-dayshift-at-freddys.gif)
